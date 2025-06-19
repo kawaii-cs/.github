@@ -6,3 +6,5 @@ This organization foscus on sharing cs-related knowledge.
 Anyone can share books, blogs(your own are especially welcome!), open online courses, which they’d like to recommend, or introduce topics you’re passionate about."  
 
 This organization has just been established and is in its early stages of development.  
+
+*Don’t fear learning, knowledge is just cute, delightful and kawaii. Let’s grow together!*  
